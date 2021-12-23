@@ -1,2 +1,17 @@
 # boumanggz-princeps-involuntairy-euthanasie
 2002-2022
+
+# bouman ggz
+https://nl.wikipedia.org/wiki/Bouman_GGZ
+
+# bemoeizorg
+https://nl.wikipedia.org/wiki/Bemoeizorg
+
+# baseball bat
+https://en.wikipedia.org/wiki/Baseball_bat
+
+# psychotherapy
+https://en.wikipedia.org/wiki/Psychotherapy
+
+# involuntairy euthanasie
+https://en.wikipedia.org/wiki/Involuntary_euthanasia
